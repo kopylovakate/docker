@@ -1,1 +1,1 @@
-![alt text](<Снимок экрана (74)-2.png>)
+![alt text](screen75.jpeg)
